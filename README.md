@@ -1,11 +1,13 @@
-━╋━━━ ㅤFORSAKENED. ㅤ ━━━╋━
+- Names: Soul, Medic, Noli, Spy
 
-Soul 𓈒⠀ₒᵣ⠀Medic/Spy⠀⠀⁺⠀⠀system⠀⠀❛ fictionkin
+- Nonbinary male , Almondsexual
 
-NS scout yumeshipper 　 ~~◡◡◡~~　　medic + spy irl⠀ノ⠀builderman irl /srs (doubles DNI)　　!
+- Fictionkin/Fullfic of Medic, Noli, and more. Yumes and doubles DNI. Im not comfortable hanging around people who think they are dating me or think they are me.
 
-⊹　　　↷　 🗡️　 ┈ 　Forsaken Sweat - 14 milestone 4's in game .　⌅
+- Forsaken sweat...14 milestone 4's in game
 
-⟣  　 🪄 　 HEAVYMEDIC DNI . 　 (≧♡≦)
+- Fictive heavy sys
 
-            ʆ ͜͝ʆ　ޱৎ　#BETTERTHANYOU　֥　🙏　̆ ̆ ̆
+- Scout yume. [Nonsharing/Voidsharing]
+
+- RADQUEER AND WEIRDOS IN GENERAL DNI DNI DNI
