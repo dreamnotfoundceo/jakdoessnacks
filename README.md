@@ -2,7 +2,7 @@
 
 - Nonbinary male , Almondsexual
 
-- Fictionkin/Fullfic of Medic, Noli, and more. Yumes and doubles DNI. Im not comfortable hanging around people who think they are dating me or think they are me.
+- Fictionkin/Fullfic of Medic, Noli, and more. Yumes of most of my kins and doubles DNI. Im not comfortable hanging around people who think they are dating me or think they are me.
 
 - Forsaken sweat...14 milestone 4's in game
 
