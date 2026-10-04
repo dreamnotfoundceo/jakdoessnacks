@@ -1,11 +1,11 @@
 ━╋━━━ ㅤFORSAKENED. ㅤ ━━━╋━
 
-Soul 𓈒⠀ₒᵣ⠀Spy⠀⠀⁺⠀⠀system⠀⠀❛ fictionkin/fullfic
+Soul 𓈒⠀ₒᵣ⠀Medic/Spy⠀⠀⁺⠀⠀system⠀⠀❛ fictionkin
 
-yumeshipper 　 ~~◡◡◡~~　　spy irl⠀ノ⠀builderman irl /srs (doubles DNI)　　!
+NS scout yumeshipper 　 ~~◡◡◡~~　　medic + spy irl⠀ノ⠀builderman irl /srs (doubles DNI)　　!
 
 ⊹　　　↷　 🗡️　 ┈ 　Forsaken Sweat - 14 milestone 4's in game .　⌅
 
-⟣  　 🪄 　 weirdos / overly sensitive DNI. 　 (≧♡≦)
+⟣  　 🪄 　 HEAVYMEDIC DNI . 　 (≧♡≦)
 
             ʆ ͜͝ʆ　ޱৎ　#BETTERTHANYOU　֥　🙏　̆ ̆ ̆
