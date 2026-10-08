@@ -6,8 +6,8 @@
 
 - Forsaken sweat...14 milestone 4's in game
 
-- Fictive heavy sys
+- Fictive Heavy System
 
 - RADQUEER AND WEIRDOS IN GENERAL DNI DNI DNI
 
-- C!Tommy kins iwec unless youre a certain someone
+- C!Tommy fictionkins iwec unless youre a certain someone
