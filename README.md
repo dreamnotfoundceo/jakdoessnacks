@@ -1,4 +1,4 @@
-- Names: Soul, Dream
+- Names: Soul, Dream, John
 
 - Nonbinary male , Almondsexual
 
