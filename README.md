@@ -9,3 +9,5 @@
 - Fictive heavy sys
 
 - RADQUEER AND WEIRDOS IN GENERAL DNI DNI DNI
+
+- C!Tommy kins iwec unless youre a certain someone
